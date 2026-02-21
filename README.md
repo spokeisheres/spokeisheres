@@ -22,8 +22,7 @@ i think i have arrows in my body idk tho
 
 <img width="500" height="350" alt="2026-01-19_08 30 51" src="https://github.com/user-attachments/assets/a56dd3d1-54d4-4de3-9599-a917d2e199ed" />
 
-<img width="448" height="258" alt="orphbrithdaty" src="https://github.com/user-attachments/assets/1f04a05f-9bb0-414b-b7f7-d90decf24fe6" /> 
-orph bday
+<img width="448" height="258" alt="orphbrithdaty" src="https://github.com/user-attachments/assets/1f04a05f-9bb0-414b-b7f7-d90decf24fe6" />  orph bday
 
 
 </div>
