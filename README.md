@@ -4,23 +4,29 @@
 
 [sign my ata ok? oke.](https://undeadlost.atabook.org/)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=o0k57cb316l0a9ksqzpbnbko6&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color_cover=true&bar_color=53b14f)](https://spotify-github-profile.kittinanx.com/api/view?uid=o0k57cb316l0a9ksqzpbnbko6&redirect=true)
 
-i w e c
+me and [mapicc](https://github.com/planetlords) ! !
 
 
 </div>
+<p align="center">
 
 
-https://github.com/user-attachments/assets/d9b8e55e-8d15-4626-ae29-47603950e580
+<img width="510" height="560" alt="190_sin_titulo_20260802232226" src="https://github.com/user-attachments/assets/831fdfcf-220b-4be4-8d76-8cf91f6b1d4b" />
 
+
+</p>
 <div align="center">
+
 
 ![spokeishere-lifesteal](https://github.com/user-attachments/assets/6f013908-3903-45c9-8875-c040b1211a3d) ![spokeishere-lifesteal (1)](https://github.com/user-attachments/assets/c4a5e8e1-bd20-4a6d-8794-3d8ea5dac290) ![spokeishere-spoke](https://github.com/user-attachments/assets/e7ce308a-07b7-4d40-94e4-3453f7eb0424)
 
-i think i have arrows in my body idk tho
 
-<img width="500" height="350" alt="2026-01-19_08 30 51" src="https://github.com/user-attachments/assets/a56dd3d1-54d4-4de3-9599-a917d2e199ed" />
+
+
+
+https://github.com/user-attachments/assets/d9638559-7bef-4f77-8c2e-f817b6797e52
+
 
 
 </div>
