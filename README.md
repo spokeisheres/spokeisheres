@@ -23,9 +23,9 @@ me and [mapicc](https://github.com/planetlords) ! !
 
 
 
+one of my ocs ^_^
 
-
-https://github.com/user-attachments/assets/d9638559-7bef-4f77-8c2e-f817b6797e52
+<img width="250" height="250" alt="oc1" src="https://github.com/user-attachments/assets/228c32ab-57ac-437c-9f31-347586d64052" /> <img width="250" height="250" alt="oc2" src="https://github.com/user-attachments/assets/77d611db-6be1-48e6-b92b-49475d3a68c9" /> <img width="250" height="250" alt="oc3" src="https://github.com/user-attachments/assets/5996e37b-bb93-496c-a73a-d91a06911693" />
 
 
 
